@@ -1,4 +1,4 @@
-# 
+# Novo GlassWire extensões para Mac OS | Premium GlassWire extensões para PC Windows. Com avaliação de vulnerabilidades e visualização de dados — otimizado para máximo desempenho em cada plataforma.
 
 
 
